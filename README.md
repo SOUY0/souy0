@@ -1,4 +1,6 @@
-## Hi there 👋
+<div align="center">
+
+![Image](https://github.com/user-attachments/assets/8f6525af-7cb8-4624-a296-beab32decf9e) ![Image](https://github.com/user-attachments/assets/ada65804-a6f9-4fac-b56b-eac986c04e82)
 
 <!--
 **SOUY0/souy0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
