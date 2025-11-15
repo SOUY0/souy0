@@ -2,7 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/8f6525af-7cb8-4624-a296-beab32decf9e) ![Image](https://github.com/user-attachments/assets/ada65804-a6f9-4fac-b56b-eac986c04e82)
 
-[cave](https://www.youtube.com/watch?v=d2afuTvUzBQ)
+[cave](https://www.youtube.com/watch?v=d2afuTvUzBQ) [info](https://rentry.co/mizisuake)
 
 alnst and genshin fandom dniuid or iwc 
 <!--
